@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @McCwhillis
+- 👀 I’m interested in gaming and anime!
+- 🌱 I’m currently learning how to use and create with Unity.
+- 💞️ I’m looking to collaborate on anything entry level in game development!
+- 📫 How to reach me through email at joejavon210@gmail.com or on instagram @joe_javon
